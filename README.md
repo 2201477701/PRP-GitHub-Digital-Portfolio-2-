@@ -47,7 +47,7 @@
 
 ---
 
-## WORK ETIQUETTE
+## WORKPLACE ETIQUETTE
 **EVIDENCE**  
 ![Work Etiquette](work%20etiquette.PNG)
 
